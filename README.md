@@ -1,0 +1,6 @@
+# sobre mim
+- 👋 Hi, I’m @amendoinw
+- 👍 meu email de contato é lana.ribas.santos@escola.pr.gov.br
+- 👀 meus interesses ...
+- 🌱 pronta pra aprender ...
+
